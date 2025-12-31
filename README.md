@@ -20,5 +20,5 @@ Economist by training, I specialize in modeling Private Equity and financial ris
 - Financial innovation
 
 ## Let’s Connect!
-I’m always open to discussing financial modeling, risk analysis, or collaborating on interesting projects. Feel free to reach out!
+I’m always open to discussing financial modeling, risk analysis, or collaborating on interesting projects. Feel free to reach out! 
 
